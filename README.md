@@ -1,2 +1,2 @@
 # Visit-Sri-Lanka
-https://csandeepa.github.io/Visit-Sri-Lanka/
+https://chamisrx.github.io/Visit-Sri-Lanka/
